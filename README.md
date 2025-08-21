@@ -9,7 +9,7 @@ Wij zijn gespecialiseerd in **dakreparatie, daklekkage herstel, dakrenovatie en 
 **Dakdekkersbedrijf DKH Ede**  
 📍 Pascalstraat 15, 6716 AZ, Ede, Gelderland, Netherlands  
 📞 Telefoon: 0318-871101  
-✉️ E-mail: i[info@dakdekkersbedrijfede.nl](mailo:https://www.dakdekkersbedrijfede.nl)  
+✉️ E-mail: [info@dakdekkersbedrijfede.nl](mailo:info@dakdekkersbedrijfede.nl)  
 🌐 Website: [dakdekkersbedrijfede.nl](https://www.dakdekkersbedrijfede.nl)
 
 ---
@@ -47,7 +47,7 @@ Neem vandaag nog contact met ons op!
 
 📍 **Adres:** Pascalstraat 15, 6716 AZ, Ede  
 📞 **Telefoon:** 0318-871101  
-✉️ **E-mail:** [info@dakdekkersbedrijfede.nl](mailo:https://www.dakdekkersbedrijfede.nl)  
+✉️ **E-mail:** [info@dakdekkersbedrijfede.nl](mailo:info@dakdekkersbedrijfede.nl)
 🌐 **Website:** [Dakdekkersbedrijfede.nl](https://www.dakdekkersbedrijfede.nl)  
 
 ---
